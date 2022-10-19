@@ -1,1 +1,1 @@
-My partner
+My partner is nice
